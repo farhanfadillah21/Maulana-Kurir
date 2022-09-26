@@ -1,2 +1,2 @@
-# maulana slot
-ayo
+# Maulana Slot
+Siap Untuk JP
